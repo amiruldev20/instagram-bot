@@ -8,7 +8,7 @@
 - Follow & Like Target
 
 # want the website version?
-> please contact [My WhatsApp](https://wa.me/6285157489446) to purchase manufacturing services
+> please contact [My Telegram](https://t.me/amiruldev20) to purchase manufacturing services
 
 # Demo Tools
 <img src="like1.jpg">
